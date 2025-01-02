@@ -10,4 +10,4 @@ to have justice served on behalf of Sean Harris, who endured decades of sexual, 
 
 ### if you're with us? great!
 
-#### if not? well... you're probably Rachel, Brian or one of their brainwashed cronies... so you can go fuck yourself kthx~ :)
+#### if not? well... you're probably Brian or one of his brainwashed cronies... so you can go fuck yourself kthx~ :)
